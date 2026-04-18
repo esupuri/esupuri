@@ -6,6 +6,6 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://files.catbox.moe/1wot9o.gif)
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ🐥ㅤㅤ[rentry](https://rentry.co/gothboy)ㅤㅤㅤㅤ[extended]()
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ🐥ㅤㅤ[rentry](https://rentry.co/timer)ㅤㅤㅤㅤ[extended](https://en.pronouns.page/@thebuffet)
 ㅤ
 ㅤ
