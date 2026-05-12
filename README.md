@@ -1,5 +1,5 @@
 ㅤ
 ㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𝜗𝜚　 ̣　　𓈒　angel ִ  ⑅   ̣̣̣　˙
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𝜗𝜚　 ̣　　𓈒　angel ִ  ⑅   ̣̣̣　˙
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=esupuri&style=plastic&color=4f6d9e&label=_　concubines　　&base=1000000)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=esupuri&style=plastic&color=4f6d9e&label=_　concubines　　&base=1000000)
