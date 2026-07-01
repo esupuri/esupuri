@@ -2,4 +2,4 @@
 ㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𝜗𝜚　 ̣　　𓈒　angels ִ  ⑅   ̣̣̣　˙
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=esupuri&style=plastic&color=654c75&label=_　concubines　　&base=1000000)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=esupuri&style=plastic&color=654c75&label=_　concubines　　&base=1000000)
