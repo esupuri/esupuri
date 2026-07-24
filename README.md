@@ -2,7 +2,7 @@
 ㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ"𝘢𝘳𝘦𝘯'𝘵 𝘺𝘰𝘶 𝘫𝘶𝘴𝘵 𝘴𝘰 𝘣𝘦𝘢𝘶𝘵𝘪𝘧𝘶𝘭𝘭𝘺 𝘧𝘪𝘭𝘵𝘩𝘺?"
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=esupuri&style=plastic&color=141c29&label=_　_awesome_profile_stalkers_🪼　　&base=1000000)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=esupuri&style=plastic&color=141c29&label=_　_awesome_profile_stalkers_🪼　　&base=1000000)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://file.garden/ZsjiSNRXvkqRnjiM/smallersmaller..)
 
