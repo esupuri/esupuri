@@ -4,6 +4,6 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=esupuri&style=plastic&color=141c29&label=_　_awesome_profile_stalkers_🪼　　&base=1000000)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://file.garden/ZsjiSNRXvkqRnjiM/spokeee)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://file.garden/ZsjiSNRXvkqRnjiM/smallersmaller..)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⟡ㅤ[RENTRY](https://rentry.co/puddins)ㅤㅤㅤ⟡ㅤ[FRONTS](https://pluralkit.xyz/f/hbtvcg)ㅤㅤㅤ⟡ㅤ[PRNS.CC](https://pronouns.cc/@heavensangelicaboves)
