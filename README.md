@@ -2,9 +2,9 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=esupuri&style=plastic&color=ffffff&label=_　_angelic_bunnies_　　&base=1000000)
 ㅤ
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤI usually sit w mari, or @late-night-snack
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤI usually sit w mari, or @late-night-snack
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://file.garden/ZsjiSNRXvkqRnjiM/pizzatimee)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⟡ㅤ[RENTRY](https://rentry.co/puddins)ㅤㅤㅤ⟡ㅤ[FRONTS](https://pluralkit.xyz/f/hbtvcg)ㅤㅤㅤ⟡ㅤ[PRNS.CC](https://pronouns.cc/@heavensangelicaboves)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⟡ㅤ[RENTRY](https://rentry.co/puddins)ㅤㅤㅤ⟡ㅤ[FRONTS](https://pluralkit.xyz/f/hbtvcg)ㅤㅤㅤ⟡ㅤ[PRNS.CC](https://pronouns.cc/@heavensangelicaboves)
