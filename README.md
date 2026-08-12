@@ -5,7 +5,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤI usually sit w mari, or @late-night-snack
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://file.garden/ZsjiSNRXvkqRnjiM/pizzatimee)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://file.garden/ZsjiSNRXvkqRnjiM/tixmobtuff)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⟡ㅤ[RENTRY](https://rentry.co/puddins)ㅤㅤㅤ⟡ㅤ[FRONTS](https://pluralkit.xyz/f/hbtvcg)ㅤㅤㅤ⟡ㅤ[PRNS.CC](https://pronouns.cc/@heavensangelicaboves)
 ㅤㅤㅤ
