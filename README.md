@@ -1,5 +1,5 @@
 ㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=esupuri&style=plastic&color=121212&label=_　_angelic_bunnies_　　&base=1000000)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=esupuri&style=plastic&color=121212&label=_　_angelic_bunnies_　　&base=1000000)
 ㅤ
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤI usually sit w mari, or @late-night-snack
