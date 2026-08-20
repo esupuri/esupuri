@@ -7,7 +7,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤhey!! I can be very clingy so pls IWECAC!!
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://file.garden/ZsjiSNRXvkqRnjiM/part-removebg-preview%20(2)%20(1).png)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://file.garden/ZsjiSNRXvkqRnjiM/part-removebg-preview%20(2)%20(1).png)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⟡ㅤ[RENTRY](https://rentry.co/puddins)ㅤㅤㅤ⟡ㅤ[FRONTS](https://pluralkit.xyz/f/hbtvcg)ㅤㅤㅤ⟡ㅤ[PRNS.CC](https://pronouns.cc/@heavensangelicaboves)
 ㅤㅤㅤ
