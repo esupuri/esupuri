@@ -9,6 +9,8 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤ![](https://file.garden/ZsjiSNRXvkqRnjiM/part-removebg-preview%20(2)%20(1).png)
 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Cardo&pause=1000&color=B7DA56&vCenter=true&width=435&lines=haii!+gift+me+parrotx+skins+please!!;I+also+take+skins+coms!;I'm+always+offtab+%2F+afk.;%E2%99%A1+don't+be+afraid+to+come+say+hi+or+int!!)](https://git.io/typing-svg) 
+
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ${\color{#74c2a2}⟡}$ㅤ[RENTRY](https://rentry.co/puddins)ㅤㅤㅤ ${\color{#6bb04c}⟡}$ㅤ[FRONTS](https://pluralkit.xyz/f/hbtvcg)ㅤㅤㅤ ${\color{#d9bd3f}⟡}$ㅤ[PRNS.CC](https://pronouns.cc/@heavensangelicaboves)
 ㅤㅤㅤ
 ㅤㅤㅤ
